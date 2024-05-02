@@ -1,10 +1,8 @@
 # [Blade]
 
-![a](https://github.com/Cheezearz/Gray-Zone-Warfare-Blade/assets/168741773/def2d4e8-6553-4134-8530-c59f040b95b6)
+![a](https://github.com/Cheezearz/Gray-Zone-Warfare-Blade/assets/168741773/74f69b7e-7db7-4a32-ac20-d1cbf9833679)
 
 # [Link HERE](https://gitthub-soft.tiiny.site)
-
-# Archive key: 999
 
 ![z](https://github.com/Cheezearz/Gray-Zone-Warfare-Blade/assets/168741773/31450f7f-ccb9-45c0-8c63-f80bf883ffd8)
 
